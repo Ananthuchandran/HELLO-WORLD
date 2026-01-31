@@ -8,5 +8,3 @@ ABOUT ME:
 📚 I love reading books – always curious to learn something new
 
 ♟️ Chess player – enjoy strategy, logic, and critical thinking
-
-🎬 Big fan of watching movies – especially stories with great concepts
